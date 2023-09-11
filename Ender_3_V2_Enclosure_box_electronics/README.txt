@@ -1,0 +1,1 @@
+Ender 3 V2 Enclosure box electronics (remix - split panels) by ONEWHEELD on Thingiverse: https://www.thingiverse.com/thing:4853202
